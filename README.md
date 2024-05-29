@@ -2,4 +2,8 @@
 - We are here to raise the web 3 gaming ecosystem .
 - Create quality products, all interconnected in a powerful narrative universe via blockchain and tokenization: video games, board games, comics, etc.
 - Implement a flow system based on blockchain, allowing users/buyers/artists to obtain immediate redistribution.
+- our first product is arrived : https://www.philibertnet.com/fr/ora-games-legends/136522-the-smashers-coach-battler-3770009377188.html
+- And the others are set to be produced !
 - Game On...
+- oragemelegends.com
+- twitter.com/ORAGAMESLEGENDS , twitter.com/OLCToken
