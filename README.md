@@ -1,3 +1,5 @@
-- 👋 Hi, we are oragameslegends ! 
-- We are here to raise the web 3 gaming ecosystem with Blockchain and tokenization serving the license and the users !
+- 👋 Hi, we are ORA GAMES LEGENDS ! 
+- We are here to raise the web 3 gaming ecosystem .
+- Create quality products, all interconnected in a powerful narrative universe via blockchain and tokenization: video games, board games, comics, etc.
+- Implement a flow system based on blockchain, allowing users/buyers/artists to obtain immediate redistribution.
 - Game On...
