@@ -5,5 +5,5 @@
 - our first product is arrived : https://www.philibertnet.com/fr/ora-games-legends/136522-the-smashers-coach-battler-3770009377188.html
 - And the others are set to be produced !
 - Game On...
-- oragemelegends.com
-- twitter.com/ORAGAMESLEGENDS , twitter.com/OLCToken
+- www.oragemelegends.com
+- www.twitter.com/ORAGAMESLEGENDS , www.twitter.com/OLCToken
