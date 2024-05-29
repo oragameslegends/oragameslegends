@@ -4,6 +4,7 @@
 - We implement a flow system based on blockchain, allowing users/buyers/artists to obtain immediate redistribution.
 
 Our first product has arrived: The Boardgame : The Smashers - Coach Battler ! https://www.philibertnet.com/fr/ora-games-legends/136522-the-smashers-coach-battler-3770009377188.html
+
 And the others are set to be produced!
 Game On...
 - www.oragemelegends.com
